@@ -1,7 +1,7 @@
 # CH!! #                  
 *PLeasure to meet everyone on ponytown!!*       
 - Fill free to Int/cuddle with me!
-- all im asking is being nice:3    
+- all im asking is be nice:3    
 - Read my rentry for more details        
 - i upload advance story 'Our promise' on my patreon!                     
 You can see me with this skins! . . Dont ~~copy or take inspo~~ thank you  
