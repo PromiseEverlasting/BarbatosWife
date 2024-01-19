@@ -1,3 +1,4 @@
+![free_to_use___venti_pixel_icon___psd_by_doosio_devbfnz](https://github.com/BarbatosWife/BarbatosWife/assets/151441588/ad385487-92f8-495e-93f3-2d22ed8ae582)
 # CH!! #                  
 *PLeasure to meet everyone on ponytown!!*       
 - Fill free to Int/cuddle with me!
