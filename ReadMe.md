@@ -1,7 +1,7 @@
 <p align="center">   
 <img width="100" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/ad385487-92f8-495e-93f3-2d22ed8ae582 alt="![free_to_use___venti_pixel_icon___psd_by_doosio_devbfnz]">    
  </p> 
- <h4 align="center">"let me sing a song for my beloved Arthia"</h4>
+ <h4 align="center">"let me sing a song for my beloved beauty Arthia"</h4>
   <h5 align="center">James Arthur - A Thousand Years</h5>
  <h6 align="center">3:31 ───ㅇ───── 4:10</h6>
 <h3 align="center"> '*•.¸♡ ♡¸.•*'</h3>
