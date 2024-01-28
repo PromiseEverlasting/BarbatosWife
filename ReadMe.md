@@ -14,10 +14,11 @@
  </p>
   <p align="center">   
 <img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/44f7f727-4934-45ae-96b2-0973ca4d4c7e alt=![pony-town-♫ - _ 💮 Beauty of a flower-boop-sit-blush-tears-blinking-name-padded-5x (1)]"> 
-   <img width="200" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/d304e8a2-1918-46cf-962c-655587f28e61 alt=![pony-town-☁ - A divine life-sit-blinking-name-padded-5x]"> 
-  
-
- </p>    
+   <img width="200" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/d304e8a2-1918-46cf-962c-655587f28e61 alt=![pony-town-☁ - A divine life-sit-blinking-name-padded-5x]">  
+    </p>   
+      <p align="center"> 
+<img width="200" src=https://github.com/BarbatosWife/BarbatosWife/assets/151441588/c0a990b1-536c-44a9-8788-30cc44580aea) alt= ![419934872_1078099856724726_1458616036069562934_n] 
+  </p> 
 <h4 align="center"> Pleasure to meet everyone in ponytown!</h4>   
 <h5 align="center">Read my rentry for details about me!</h5>
 <h6 align="center">Fill free to sign my guestbook</h6>
