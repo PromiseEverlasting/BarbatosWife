@@ -10,7 +10,10 @@
 <img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/ee085f5d-9441-4ef4-ac72-bc8479caf2a0 alt="![div75]">    
  </p> 
  <p align="center">   
-<img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/71440fd2-db0d-49f7-956b-4557baa45a73 alt="![image]">     
+<img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/71440fd2-db0d-49f7-956b-4557baa45a73 alt="![image]">  
+   </p>
+   <p align="center">   
+  "i choose to kiss you in the wind, for the wind is gentler than my lips"
  </p>
   <p align="center">   
 <img width="300" src="https://github.com/BarbatosWife/BarbatosWife/assets/151441588/44f7f727-4934-45ae-96b2-0973ca4d4c7e alt=![pony-town-♫ - _ 💮 Beauty of a flower-boop-sit-blush-tears-blinking-name-padded-5x (1)]"> 
